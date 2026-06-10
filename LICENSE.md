@@ -1,4 +1,4 @@
-# 
+# VIP Augment Code scripts. Com preservação de privacidade e busca semântica — otimizado para máximo desempenho e eficiência.
 
 
 
